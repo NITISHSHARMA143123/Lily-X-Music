@@ -1,9 +1,9 @@
 <h2 align="center">
-    ──「 ᴀɴᴏɴ ダ ᴍᴜsɪᴄ 」──
+    ──「 𝐋𝖎𝖑𝐲 𝖝 𝐌𝖚𝐬𝖎𝖈 」──
 </h2>
 
 <p align="center">
-  <img src="https://telegra.ph/file/56d1760224589ee370186.jpg">
+  <img src="https://telegra.ph/file/48af9d58eee079b15c18c.jpg">
 </p>
 
 <p align="center">
